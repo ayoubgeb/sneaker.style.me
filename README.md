@@ -1,1 +1,1 @@
-# sneaker.style.me
+Delete file
